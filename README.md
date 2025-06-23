@@ -31,9 +31,9 @@
 
 点击访问：<a href="https://hl431.pages.dev/">官网在线吃瓜观看</a>
 
-点击访问：<a href="https://hl982.pages.dev/">s51吃瓜</a>
+点击访问：<a href="https://hl982.pages.dev/">每日分享最新吃瓜网最新官网地址</a>
 
-点击访问：<a href="https://hl438.pages.dev/">51吃瓜网址</a>
+点击访问：<a href="https://hl438.pages.dev/">黑料社区成人版在线观看</a>
 
 点击访问：<a href="https://hl428.pages.dev/">网爆黑料吃瓜</a>
 
